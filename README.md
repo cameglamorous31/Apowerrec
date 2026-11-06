@@ -223,4 +223,4 @@ ApowerREC is provided as a complete free version, ensuring all features and upda
 Unlock your screen recording potential today! **Download ApowerREC for free now and start capturing your screen effortlessly!**
 
 ---
-**Last updated:** 2026-11-05 19:32:59 UTC
+**Last updated:** 2026-11-06 00:47:50 UTC
